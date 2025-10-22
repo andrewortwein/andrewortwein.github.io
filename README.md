@@ -8,8 +8,9 @@ Hi! You found my little corner of the Internet where I (not so loudly) share som
 
 ## Filmmaking
 
-- [IMDb](https://www.imdb.me/andrewortwein)
-- [Starship Caliborn](https://m.youtube.com/playlist?list=PLN2PsJbAILgmwDTf0oZK5RNBFvPtTx0HQ)
+- [Starship Caliborn](https://youtube.com/playlist?list=PLN2PsJbAILgmwDTf0oZK5RNBFvPtTx0HQ&si=DYNhPXHlsBGRaTBW): A series of Star Trek fan films that I make with my wife and a great group of people
+   - [The Plain Sight](https://youtu.be/tPMIanq2G-E): Our latest film, one I'm especially excited about
+- [IMDb](https://www.imdb.me/andrewortwein): Films I've worked on
 
 ## Social media
 
