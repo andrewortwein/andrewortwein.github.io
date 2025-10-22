@@ -14,7 +14,7 @@ Hi! You found my little corner of the Internet where I (not so loudly) share som
 - [Near Mint Condition](https://www.youtube.com/@NearMintCondition): A channel about geeky stuff that that my friends and I started in 2016, one that my best friend has evolved into a wonderful comic community and a full-time job
    - [Our Favorite Intros From 2019](https://youtu.be/1g_hWfEjjVc): My favorite creative aspect of our old panel show was making fun intros like these
    - [Bloopers and Behind the Scenes: The Magic of Making Our Ghostbusters Intro](https://youtu.be/h3MG6KBc2co): One of the few times I got in front of the camera
-- [Near Mint Collective](http://youtube.com/c/nearmintcondition): NMC2, a place we put all the other stuff once NMC1 became focused on comics
+- [Near Mint Collective](https://www.youtube.com/@NearMintCollective): NMC2, a place we put all the other stuff once NMC1 became focused on comics
 
 ## Social media
 
